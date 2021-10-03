@@ -7,7 +7,8 @@ I have made many games. All of them you can download from my [itch.io](https://s
 
 All the projects of this repository are entirely done by me a.k.a [Sakib](https://github.com/Sakib831).😜
 <br>
+<br>
 Using those materials with [my](https://github.com/Sakib831) permission is completely unsanctioned.😌
 <br>
-<\n>
+<br>
 Hope you like this.😋
