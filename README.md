@@ -9,5 +9,5 @@ All the projects of this repository are entirely done by me a.k.a [Sakib](https:
 <br>
 Using those materials with [my](https://github.com/Sakib831) permission is completely unsanctioned.😌
 <br>
-<br>
+<\n>
 Hope you like this.😋
